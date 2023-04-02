@@ -1,0 +1,1 @@
+Rabotaet tolko chorno beliy
